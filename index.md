@@ -1,6 +1,6 @@
 ## Welcome to Soryx
 
-Soryx runs a community of parents and a community of teachers. Our goal is to connect teachers and students. Soryx helps teachers and students do well in their classes by offering support whenever needed. Teachers share their experience and knowledge, working together to offer high quality lessons.
+Soryx runs a community of parents and a community of teachers. Our goal is to connect teachers and students. Soryx helps teachers and students do well in their classes by offering support whenever needed.
 
 ### Website
 
