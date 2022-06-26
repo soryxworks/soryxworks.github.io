@@ -8,6 +8,6 @@ Our website is currently under construction.
 
 ### Contact
 
-Jennifer Leggatt (The principal of Sorix) \
+Jennifer Leggatt (The principal of Soryx) \
 [LinkedIn](https://ca.linkedin.com/in/jennifer-leggatt-56557059) \
 [Facebook](https://www.facebook.com/jenleggatt)
