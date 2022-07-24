@@ -10,4 +10,9 @@ Our website is currently under construction.
 
 Jennifer Leggatt (The principal of Soryx) \
 [LinkedIn](https://ca.linkedin.com/in/jennifer-leggatt-56557059) \
-[Facebook](https://www.facebook.com/jenleggatt)
+[Facebook](https://www.facebook.com/jenleggatt) \
+
+### Links
+
+Soryx YouTube Channel \
+[Soryx Academia](https://www.youtube.com/channel/UC2M_V9b052lQ0i4dvTYZ-2A) \
